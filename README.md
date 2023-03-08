@@ -1,3 +1,6 @@
+![ezgif com-video-to-gif (2)](https://user-images.githubusercontent.com/109330091/223807104-4eea99c6-9a30-4abc-9b38-47157a2286bc.gif)
+
+
 <h1 align="center">Hiiii 👋, I'm Abel De Lando</h1>
 <h3 align="center">Love Blue 💙</h3>
 
