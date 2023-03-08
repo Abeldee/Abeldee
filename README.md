@@ -15,7 +15,7 @@
 
 - 🤓 Currently learning more about **Bussiness Supports Softwares 📈**
 
-- ⚡ Fun fact [Lovin' "Lia" 🤍](Lovin' "Lia" 🤍)
+- ⚡ Fun fact **Lovin' "Lia" 🤍**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
