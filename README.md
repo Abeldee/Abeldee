@@ -1,26 +1,25 @@
-<h1 align="center">Hi 👋, I'm Desvilia</h1>
-<h3 align="center">Love Green💚</h3>
+<h1 align="center">Hiiii 👋, I'm Abel De Lando</h1>
+<h3 align="center">Love Blue 💙</h3>
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=desvilia&label=Profile%20views&color=0e75b6&style=flat" alt="desvilia" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=abeldee&label=Profile%20views&color=0e75b6&style=flat" alt="abeldee" /> </p>
 
-- 🔭 I'm Teaching Chineese Language at [Blessing course](https://blessing-dempo.business.site/)
+- 💼 Tunas Auto Graha Staff -> [Tunas Auto Graha Co.](https://tag-toyota.com/)
 
-- 🤓 I’m currently learning more about **Technology👩🏻‍💻**
+- 🐵 Also Monkey lovers 💚 **🐵🙈🙉🙊🐒**
 
-- 🍴 All kind potatoes Lovers 🍟🥔, [Budidaya kentang?](http://cybex.pertanian.go.id/mobile/artikel/89978/Langkah-Langkah--Budidaya-Kentang-/)
+- 🍓 Strawberry Lovers [More About Strawberry 1](https://id.wikipedia.org/wiki/Stroberi_kebun)
 
-- 🐸 Also froggie lovers 💚, [See more about frog !](https://www.amphibianlife.com/frog-facts-for-kids/)
+- 📚 Currently studying at [Multi Data Palembang University](https://mdp.ac.id/)
 
-- 📫 How to reach me **desvilia@mhs.mdp.ac.id**
+- 📫 How to reach me [abeldelando11@mhs.mdp.ac.id](abeldelando11@mhs.mdp.ac.id)
 
-- 📄 Know about my experiences : [I only had hard life experiences](I only had hard life experiences)
+- 🤓 Currently learning more about **Bussiness Supports Softwares 📈**
 
-- ⚡ Fun fact **I think i love 'A' 🤍**
+- ⚡ Fun fact [Lovin' "Lia" 🤍](Lovin' "Lia" 🤍)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
-<a href="https://twitter.com/desvilia18" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="desvilia18" height="30" width="40" /></a>
-<a href="https://instagram.com/desvi_lia" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="desvi_lia" height="30" width="40" /></a>
+<a href="https://instagram.com/abeldelando_" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="abeldelando_" height="30" width="40" /></a>
 </p>
 
 <h3 align="left">Languages and Tools:</h3>
