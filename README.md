@@ -4,7 +4,7 @@
 <h1 align="center">Hiiii 👋, I'm Abel De Lando</h1>
 <h3 align="center">Love Blue 💙</h3>
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=abeldee&label=Profile%20views&color=0e75b6&style=flat" alt="abeldee" /> </p>
+<p align="right"> <img src="https://komarev.com/ghpvc/?username=abeldee&label=Profile%20views&color=0e75b6&style=flat" alt="abeldee" /> </p>
 
 - 💼 Tunas Auto Graha Staff -> [Tunas Auto Graha Co.](https://tag-toyota.com/)
 
