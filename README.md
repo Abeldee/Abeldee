@@ -13,17 +13,11 @@
 
 - 💼 Tunas Auto Graha Staff -> [Tunas Auto Graha Co.](https://tag-toyota.com/)
 
-- 🐵 Also Monkey lovers 💚 **🐵🙈🙉🙊🐒**
-
-- 🍓 Strawberry Lovers [More About Strawberry 1](https://id.wikipedia.org/wiki/Stroberi_kebun)
-
 - 📚 Currently studying at [Multi Data Palembang University](https://mdp.ac.id/)
 
 - 📫 How to reach me [abeldelando11@mhs.mdp.ac.id](abeldelando11@mhs.mdp.ac.id)
 
 - 🤓 Currently learning more about **Bussiness Supports Softwares 📈**
-
-- ⚡ Fun fact **Lovin' "Lia" 🤍**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
